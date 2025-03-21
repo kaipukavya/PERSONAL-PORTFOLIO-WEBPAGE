@@ -23,4 +23,3 @@ MENTOR:NEELA SANTOSH
 ![Image](https://github.com/user-attachments/assets/678ce436-31eb-4b43-b520-3fae075a36e1)
 ![Image](https://github.com/user-attachments/assets/e3940832-b2c5-4070-8bf2-27103f051b8a)
 
-<!-- Failed to upload "Developer's Portfolio website and 22 more pages - Personal - Microsoft​ Edge 2025-03-12 22-08-15.mp4" -->
